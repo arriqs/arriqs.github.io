@@ -1,1 +1,1 @@
-# arriqs.github.io
+Mighty's Eye Photography
